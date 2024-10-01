@@ -23,4 +23,4 @@
 https://drive.google.com/file/d/1Ok14FALxUydTmmBUqLGMxd6wmx9aeXfM/view?usp=sharing
 
 개인 개발 PPT 부분
-https://docs.google.com/presentation/d/12tXq2eIbsW0dJYJhUe1B7c6dPGukTUHA/edit?usp=sharing&ouid=111602518282558539336&rtpof=true&sd=true
+[https://docs.google.com/presentation/d/12tXq2eIbsW0dJYJhUe1B7c6dPGukTUHA/edit?usp=sharing&ouid=111602518282558539336&rtpof=true&sd=true](https://drive.google.com/file/d/1MSE1n7TRW-CE1PaPizSOK3WaEquUrEMr/view?usp=sharing)
